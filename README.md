@@ -7,4 +7,5 @@
 ![ERROR](https://github.com/user-attachments/assets/d1047353-11a4-4f81-827a-c5203fc2a053)
 ![_ UNIVERSAL   INTUITIVE](https://github.com/user-attachments/assets/292adbe7-aace-4a9a-9936-50fdd9ed3fe9)
 ![_ POWERFUL SORTING METHODE](https://github.com/user-attachments/assets/edebb41a-6fb9-4831-8178-928f620294be)
+![_ SMART ERROR HANDLING](https://github.com/user-attachments/assets/9bbe59e4-78ed-45d8-aa41-a2c2bca3f20c)
 
