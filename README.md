@@ -11,4 +11,5 @@
 ![sortit](https://github.com/user-attachments/assets/fddf8da5-9487-4b59-8f44-daff07de546f)
 ![06034-ezgif com-resize](https://github.com/user-attachments/assets/4bc55306-f729-494c-af09-bb54a3a2c951)
 ![_ POWERFUL SORTING METHOD](https://github.com/user-attachments/assets/a08a05f1-125c-4520-b6e8-bb3a2b4eaf4c)
+![_ CLEAN AND CLEAR](https://github.com/user-attachments/assets/101af997-04cf-47d0-972f-92cd3757e411)
 
